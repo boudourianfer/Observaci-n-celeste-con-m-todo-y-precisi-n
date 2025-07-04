@@ -1,1 +1,2 @@
-# Observaci-n-celeste-con-m-todo-y-precisi-n
+# Observación-celeste-con-m-todo-y-precisión
+Una imagen caudada puede parecer un cometa, pero muchas veces solo es un defecto químico de la emulsión fotográfica. Estas fallas han engañado a observadores expertos durante décadas. Numerar las placas antes de la exposición, registrar cada paso con rigor y repetir tomas dudosas evita errores. La emoción del hallazgo astronómico solo se sostiene con método y evidencia.
